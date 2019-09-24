@@ -1,2 +1,2 @@
-# Subscribe Channel RANDI OLOYY
-• Hello World:)
+Jangan Di Recode;'
+Im Nuub ;'
